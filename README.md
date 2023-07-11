@@ -13,7 +13,7 @@
 #### :arrow_double_down: [ios 版本.ipa](http://iosnewlightspeeddownload.kufuyou.com/down/MTIzNDU2.html)
 #### :arrow_double_down: [Windows 版本.exe](https://1.13.175.95:4432/download/lightspeed-pc-release.zip)
 #### :arrow_double_down: macOS 版本.dmg 系统维护中，敬请期待!
-#### :arrow_double_down: [官方网站链接](https://www.speedlight888.com/)
+#### :arrow_double_down: [官方网站链接](https://www.lightspeed888.com/)
 ---
 ### 免费福利
 **:gift: 下载光粒VPN，免费领会员！**

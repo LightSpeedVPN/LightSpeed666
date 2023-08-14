@@ -12,7 +12,7 @@
 #### :arrow_double_down: [Android 版本.APK](https://1.13.175.95:4432/download/guangli-2.6.apk)
 #### :arrow_double_down: [ios 版本.ipa](http://iosnewlightspeeddownload.kufuyou.com/down/MTIzNDU2.html)
 #### :arrow_double_down: [Windows 版本.exe](https://1.13.175.95:4432/download/lightspeed-pc-release.zip)
-#### :arrow_double_down: macOS 版本 系统维护中，敬请期待!
+#### :arrow_double_down: [MacOS 版本.dmg](https://1.13.175.95:4432/download/guangli.dmg)
 #### :arrow_double_down: [官方网站链接](https://www.lightspeed888.com/)
 ---
 ### 免费福利
